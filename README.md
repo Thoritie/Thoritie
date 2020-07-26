@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-I'm alchemist software engineer 🧕🏻, very eager to learn such new fun thing. got long way to go from here right now, still searching what i'm really passionate about 
+I'm software artist 🧕🏻, very eager to learn such new fun thing. got long way to go from here right now, still searching what i'm really passionate about 
 Just keep on going ☃️
 <!--
 **Thoritie/Thoritie** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
